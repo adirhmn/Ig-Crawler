@@ -1,0 +1,1 @@
+data yang kami kumpulkan sejumlah 617 data selama sekitar 2 jam. 
